@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @beefsticks
+- 👀 I’m interested in ... tech, computers, gaming
+- 🌱 I’m currently learning ... how to make balanced Lithium battery packs
+- 💞️ I’m looking to collaborate on ... not much
+- 📫 How to reach me ... just email/message
